@@ -13,5 +13,3 @@
    - you like sexualizing ruan mei.
      - you just want to talk to me to flirt with me (no, please.)
 5. you know me irl. (except neka<3)
-
-if you meet any requirement on this list, i will hide or block you.

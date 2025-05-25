@@ -3,7 +3,7 @@
 1. you ship wriolette/neuvithesley.
    - you think neuvi & furi are sibling just bc "they look similar"
      - you're attracted to lolis.
-2. you're 18+
+2. you're 18+ and...
    - you act cringy/make sexual jokes/offensive jokes about gender, crimes, etc.
      - you like to make fun of others ponys/people.
 3. you hate me/hate my friends.

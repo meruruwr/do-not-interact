@@ -13,4 +13,4 @@
    - you like sexualizing ruan mei.
      - you just want to talk to me to flirt with me (no, please.)
 5. you know me irl. (except neka<3)
-6. and please, do not interact if you have a Wriothesley pony and you're doing match with someone else. _Wriothesley to me is like a bf, seeing him being shipped with someone else makes me very jealousy._
+6. and please, do not interact if you have a Wriothesley pony and you're doing match with someone else. _Wriothesley to me is like a bf, seeing him being shipped with someone else makes me very jealousy. Even if you're matching with a friend of my group, please just stay away, it makes me so sickly jealous._
